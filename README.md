@@ -1,0 +1,2 @@
+# Rashid
+Rashid earning crypto
